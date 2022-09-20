@@ -1,0 +1,1 @@
+Selam bu ders anlatım reposudur.
